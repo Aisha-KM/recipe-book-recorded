@@ -6,13 +6,14 @@
 - 1 Head of garlic
 - 1 Baggette
 - 5 tbp oil
+- 1 cup of chopped Cilantro
 
 
 
 ## Instructions
 
 - Mince garlic
-- Mix with oil
+- Mix all ingredient with oil
 - Spread on the bread
 - Toast in the oven
 - enjoy!
